@@ -1,4 +1,4 @@
-#  
+#  Experience oil empire like never before with no-ban oil empire Script, the #1 Script. Includes auto-sell and anti-ban for unbeatable performance.
 
 
 
